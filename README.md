@@ -1,4 +1,4 @@
-## Hi/Oi 👋
+## Hi / Oi 👋
 
 I am Jéssika
 
